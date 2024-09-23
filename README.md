@@ -3,7 +3,7 @@
 - 🌱 I'm currently studying for a Master's degree in animal biodiversity, with a species distribution modeling project. 
 - 💞️ I'm looking to collaborate in academic research.
 - 📫 How to reach me: theolazzari2@gmail.com
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/they
 - ⚡ Fun fact: In my spare time I'm a tattoo artist  (:
 
 <!---
